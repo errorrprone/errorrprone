@@ -1,4 +1,4 @@
-### Hi there 👋
+### :-] Hi! I'm looking to collaborate on fun and useful projects so let me know if you find anything of interest in one of repositories and please let me know if you have any ideas.
 
 <!--
 **errorrprone/errorrprone** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
