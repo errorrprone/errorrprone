@@ -1,4 +1,4 @@
-### :-] I'm interested in collaborating to make cool and or useful stuff. Please don't hesitate to make contact. andi@andiro.org
+### :-] I'm interested in collaborating to make cool and or useful stuff. Please don't hesitate to make contact. tellitellu@proton.me
 
 <!--
 **errorrprone/errorrprone** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
